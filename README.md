@@ -1,0 +1,1 @@
+# https-github.com-iuliadmy-simple-quote-page
